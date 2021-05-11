@@ -1,1 +1,1 @@
-# rivahub-update
+غیرفعال
